@@ -1,5 +1,9 @@
 # Your Mercy and Salvation – Psalm 119 (Vav) | உமது தயவும் உமது இரட்சிப்பும் | Album 30 Song 1
 
+ஆல்பம் 30 பாடல் 1
+உமது தயவும் உமது இரட்சிப்பும் – உமது வாக்கின்படி எனக்கு வருவதாக (சங்கீதம் 119:41-48 - வௌ).
+ஆமென். அல்லேலூயா!
+
 Psalm 119:41-48 – Prayer for God’s mercy and salvation to come according to His Word. The psalmist trusts, obeys, and boldly speaks God’s testimonies even before kings.
 
 Prayer:
